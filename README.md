@@ -1,6 +1,6 @@
 # Abelssoft-CleverPrint-9.1-With-Cracked-Latest
 
-# [Click For Download](Click For Download 💯 👉👉👉 https://spaxmedia.net/download/) 
+# [Click For Download]( https://spaxmedia.net/download/) 
 
 Abelssoft CleverPrint perfect printing: Clever Print saves 50% on printing expenses. Clever print permits you to print multiple pages on an unmarried sheet of paper. A device in preview permits you to take away man or woman, unwanted, pages earlier than printing start offevolved.
 
